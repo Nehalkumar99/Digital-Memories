@@ -1,0 +1,1 @@
+Published on google play as - Online memories An app to save all kinds of sharing that can happen from other apps to one place. Can be helpful for users to save their favourite post/videos link from apps like Instagram/Youtube/LinkedIn all at one place.
